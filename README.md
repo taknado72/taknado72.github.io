@@ -1,0 +1,1 @@
+# taknado72.github.io
